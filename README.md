@@ -1,1 +1,1 @@
-hi! God Greetings of the day .
+hi! God Greetings of the day !
